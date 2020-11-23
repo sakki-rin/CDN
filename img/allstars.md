@@ -1,1 +1,0 @@
-![All_Stars](C:\Users\wuyundong\Pictures\Anime\All_Stars.jpg)
